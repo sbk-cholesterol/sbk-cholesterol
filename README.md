@@ -2,8 +2,14 @@ Welcome to my GitHub page! Yeah I'm one of the worst players in https://surviv.i
 
 
 Instagram @sbk.cholesterol.0001
+-
 Discord sbk.cholesterol#0001
+-
 YouTube sbk.cholesterol
+-
 GitHub sbk-cholesterol
+-
 Steam sbk_cholesterol
+-
 Twitch sbk_cholesterol
+-
